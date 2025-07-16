@@ -138,4 +138,3 @@ Kumari Pragya Rani
 Email: kpragyar@gmail.com
 Location: Bhopal, Madhya Pradesh, India
 
-Let
